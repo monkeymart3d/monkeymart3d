@@ -30,7 +30,7 @@ Make sure to follow Monkey Mart on their social media accounts for all the lates
 
 [Youtube](https://www.youtube.com/@monkeymart3d)
 
-[X](https://x.com/monkeymart5)
+[X](https://x.com/monkeymart_3d)
 
 [Facebook](https://www.facebook.com/monkeymart3d/)
 
